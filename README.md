@@ -3,7 +3,8 @@
 <!--
 **jenlee-tech/jenlee-tech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
-Here are some ideas to get you started:
+Ok, stop snooping around, just kidding.  🤣 
+
 
 - 🔭 I’m currently surviving the pandemic - enough said!
 - 👯 I’m open to collaboration but I do have a keen interests in the following areas: education, healthcare/wellness industry, gardening, running, cooking or just food in general 😋 - 🍗 🫕 🍿 🍛 🍠
