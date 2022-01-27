@@ -6,7 +6,7 @@
 Ok, stop snooping around, just kidding.  🤣 
 
 
-- 🔭 I’m currently surviving the pandemic - enough said!
+- 🔭 I’m currently surviving the pandemic - enough said! 🧬
 - 👯 I’m open to collaboration but I do have a keen interests in the following areas: education, healthcare/wellness industry, gardening, running, cooking or just food in general 😋 - 🍗 🫕 🍿 🍛 🍠
 
 - 📫 How to reach me: jenlee.tech@gmail.com
