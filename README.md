@@ -13,7 +13,7 @@ Ok, stop snooping around, just kidding.  🤣
      - gardening
      - fantasy
      - running - I don't run very fast but in my fantasies I do
-     - cooking or just food in general 😋 - 🍗 🫕 🍿 🍛 �
+     - cooking or just food in general 😋 - 🍗 🫕 🍿 🍛
 - 📫 How to reach me: jenlee.tech@gmail.com
 - 🔗 Take a look at my portfolio: https://www.jenleedev.com/
 - ⚡ Fun fact: ...Hamburgers were invented in Connecticut
