@@ -6,7 +6,7 @@
 Ok, stop snooping around, just kidding.  🤣 
 
 
-- 🔭 I’m currently surviving the pandemic - enough said! 🧬
+- 🙏 Life is cool! Let's be thankful!
 - 👯 I’m open to collaboration but I do have keen interests in the following areas (other than Web development, obviously): 
      - education
      - healthcare/wellness industry
